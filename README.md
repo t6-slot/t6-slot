@@ -6,7 +6,7 @@ Selamat Datang di T6 Slot, platform slot online terpercaya dengan link alternati
 
 [![daftar](https://i.ibb.co.com/sswbLpV/daftar.gif)](https://rebrand.ly/t6slot)
 
-Mainkan slot online terbaik dan terpercaya dengan link alternatif daftar & login resmi terbaru dan terupdate 2024. Dapatkan kesempatan menang lebih besar dan jackpot slot terbesar dengan T6 Slot! Semua slot resmi Terbaru diperbarui link akses supaya para pemain tidak terganggu dan bisa menikmati permainannya.
+Mainkan slot online terbaik dan terpercaya dengan link alternatif daftar & login resmi terbaru dan terupdate 2024. Dapatkan kesempatan menang lebih besar dan jackpot slot terbesar dengan [T6 Slot](https://github.com/t6-slot)! Semua slot resmi Terbaru diperbarui link akses supaya para pemain tidak terganggu dan bisa menikmati permainannya.
 
 Ayo daftar sekarang juga di link resmi kami dan dapatkan bonus yang menambah seru permainan dengan kemenangannya!
 
